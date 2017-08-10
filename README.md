@@ -1,1 +1,1 @@
-Qtum killer coin will take over Qtum
+Greatcoin will take over all the coin in the world
